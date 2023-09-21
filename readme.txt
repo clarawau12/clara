@@ -1,0 +1,2 @@
+arigatogozomaisu
+cotomatte
